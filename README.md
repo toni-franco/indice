@@ -1,2 +1,2 @@
-# <a href="https://toni-franco.github.io/indice/">Indice</a>
+# <a href="https://toni-franco.github.io/indice/">Index / Índice</a>
 
